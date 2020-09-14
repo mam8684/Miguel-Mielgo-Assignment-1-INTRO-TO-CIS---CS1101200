@@ -1,1 +1,1 @@
-# Miguel-Mielgo-Assignment-1-INTRO-TO-CIS---CS1101200
+# Miguel-Mielgo-INTRO-TO-CIS---CS1101200
